@@ -1,1 +1,0 @@
-# HMCsphqn7
